@@ -1,2 +1,1 @@
-:p
-vegetarian restaurant 
+
